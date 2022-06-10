@@ -1,0 +1,3 @@
+- I am Tor Traeland
+- a mechanical engineer based in Perth, Australia
+- The best way to reach me is to connect on Linkedin or at Tor.Traeland@gmail.co
